@@ -9,9 +9,11 @@
 
 - 💬 Ask me about **react, flutter,nextjs**
 
+- 🌱 I’m currently learning everything 🤣
+
 - 📫 How to reach me **mhmmdshazeen@gmail.com**
 
-- 🌱 I’m currently learning everything 🤣
+
 
 
 <h3 align="left">Connect with me:</h3>
