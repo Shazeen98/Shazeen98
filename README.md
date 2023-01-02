@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **mhmmdshazeen@gmail.com**
 
+- 🌱 I’m currently learning everything 🤣
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
